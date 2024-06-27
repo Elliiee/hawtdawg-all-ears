@@ -1,10 +1,14 @@
-## Where do I list my favorite treats? 
+## Photos are nice and all, but I don't see very well. How can 
+I smell the other dogs? 
 
-Open the HawtDawg app and click on "Edit Profile."
+We regret that we are unable to offer our customers smell-o-vision
+at this time. 
 
-Scroll down to the section called "Passions" and tell 
-potential mates and friends all about the treats and toys 
-that make your tail wag.
+As soon as human technology catches up to dog noses, we'll be 
+sure to add a scent feature to the app. 
 
-When you're done, click "Save Changes" to show the world. 
+In the meantime, why not meet up at the dog park to get a whiff
+of your new friend? 
+
+
 
